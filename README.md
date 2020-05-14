@@ -1,0 +1,1 @@
+Un calculator mai ciudat
